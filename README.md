@@ -1,1 +1,1 @@
-# CV interactif réalisé par Ulysse Gravier
+CV interactif réalisé par Ulysse Gravier
